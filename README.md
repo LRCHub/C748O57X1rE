@@ -1,0 +1,43 @@
+# 加賀(ネギシャワーP) – フルール
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+夢にまみれ　零れた secret
+宵闇に隠した紅
+今、まだ未来の中
+My love　雫の静寂 night
+期待は So vanilla もう切ない
+甘い starlight　サファイア color
+無垢世界　晒して midnight
+刹那的 magic
+絡まって Fleur　Just like the moon
+ふたり、数千年の時を描いて
+躊躇って fool　暁 bloom
+ゆらり、水面に溶けてゆく your name
+瞳に映して
+霞がかり　艶やかに feel
+Lazy smile　時雨とアラルガンド
+染まる傀儡　噤む戯曲
+My rule　そぞろに咲く
+掠めとった恋心　揺蕩う
+下弦と fake　受け入れて
+透明な lies 翳すほうみたい
+鏡花水月 magic
+絡まって Fleur　Just like the moon
+螺旋は Wonderland
+Paradise and Dance, I know
+躊躇って fool　暁 bloom
+終焉の旋律は終わらない、今まだ
+モノクロの街
+儚い物語を聞かせて tonight
+もう待てない
+瞬間にあふれたhip, lip, and tears
+Secret...
+絡まって Fleur　Just like the moon
+ふたり、数千年の時を描いて
+躊躇って fool　暁 bloom
+ゆらり、水面に溶けてゆく your name
+瞳に映して
+花と踊るように
+```
